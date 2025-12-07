@@ -2,7 +2,7 @@
 
 If you have any questions, issues, or feature requests, please contact us:
 
-📧 Email: tanyopeter@gmail.com  
+📧 Email: shoplist.tp@gmail.com
 
 ---
 
